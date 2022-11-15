@@ -1,4 +1,4 @@
 # Gabriela Jung
 ## Experience
-**nth \**
+**nth**\
 till2022
